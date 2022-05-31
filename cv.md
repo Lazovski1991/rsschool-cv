@@ -1,5 +1,7 @@
 
-### ![Lazovski Alexander Sergeevich](https://vk.com/photo643760597_457239038)
+![Lazovski Alexander Sergeevich](https://sun9-west.userapi.com/sun9-40/s/v1/if2/riLnH-XCPEZxvIAugi6iiwSKQw__GbcBCOHC931hSFOgTLb5J6byIcfR_IWTHf-4YYEBROPY3C2DUNZKehWXk-DW.jpg?size=1280x960&quality=96&type=album)
+
+### Lazovski Alexander Sergeevich
 
 #### Contacts:
 - https://vk.com/id643760597
